@@ -7,5 +7,5 @@ Hello Everyone, This is ***Harsimran Singh*** from **Guru Nanak Dev Engineering 
 >>
 >>-I am a Culture Enthusiast.
 >>
->>-I love the artistic form of expression.
+>>-I like the artistic form of expression.
 ----------------------
